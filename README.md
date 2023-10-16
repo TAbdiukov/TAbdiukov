@@ -1,5 +1,10 @@
-[![Stand With Ukraine](./nebo_UA.jpeg)](https://stand-with-ukraine.pp.ua)
+## Israel - Swords of Iron
+
+[See LIVE](https://www.youtube.com/@danieltv7917)
+
 ### Financial aid to Ukraine
+[![Stand With Ukraine](./nebo_UA.jpeg)](https://stand-with-ukraine.pp.ua)
+
 
 * [Ukraine's Armed Forces](https://bank.gov.ua/en/news/all/natsionalniy-bank-vidkriv-spetsrahunok-dlya-zboru-koshtiv-na-potrebi-armiyi) – Official fundraising account to support the Armed Forces of Ukraine.
 * [Razom For Ukraine](https://www.razomforukraine.org/donate/) – Together for Ukraine.
